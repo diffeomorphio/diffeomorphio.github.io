@@ -1,1 +1,0 @@
-# diffeomorphio.github.io
